@@ -1,2 +1,2 @@
 # LABORATORIO1
-#Integrantes: ajcdjiodjcosidjdckdjksokcsocsoikcioskcd
+Integrantes: ajcdjiodjcosidjdckdjksokcsocsoikcioskcd
